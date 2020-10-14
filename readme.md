@@ -1,4 +1,4 @@
-### Hi there, I'm Sudhanshu 👋
+### Hi there, I'm Sudhanshu Sharma 👋
 
 ## I'm a Developer, and Student!
 
